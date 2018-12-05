@@ -26,13 +26,13 @@ These are thought-provoking questions! So, I’m listing five things that I hope
 
 I’m 28 years old and have never left the U.S. The world around us is continually changing – sometimes for the better and sometimes for the worst. If we can at least make it to another country before more evil conquers the Earth, that’d be a great thing! A place like Germany or Italy sounds nice. Much of my family on my dad’s side have Italian genes, so I’d love to see where I came from.
 
-According to this traveler’s checklist, it looks like we’ll definitely need to check a bunch!
+According to a recent traveler’s checklist I looked at, it looks like we’ll definitely need to check a bunch!
 
 **\#2 Continue to Run A Successful Business**
 
 Running a successful business is no easy feat. Not only does it take determination, struggles, and roller coaster emotions, but it’s a long-term gig.
 
-I’m now running MP Media Marketing locally with clients in video marketing and web design. There are so many obstacles I know we’ll have to overcome in order to succeed. But, I’m really optimistic due to articles like this one that state business failures are declining.
+I’m now running MP Media Marketing locally with clients in video marketing and web design. There are so many obstacles I know we’ll have to overcome in order to succeed. But, I’m really optimistic from articles that state business failures are declining.
 
 Hopefully by September 2021, I’m writing another article about the next 5 years and goals for the company.
 
@@ -40,7 +40,7 @@ Hopefully by September 2021, I’m writing another article about the next 5 year
 
 There’s one thing that my experience has taught me – there’s someone out there that would be interested in my story. It’s the same way many of us enjoy reading autobiographies of famous people like Steve Jobs or even just people that lived long ago. There’s always going to be another person in the world you’re interested in – either their story, personality or just some of their achievements. I honestly think we have a story worth telling.
 
-In my head, planning to have two non-fiction books written is not impossible. In fact, like I mentioned in my previous post, I’ve got the majority of the first one done, so finishing that one and moving to the next should help give me a headstart!
+In my head, planning to have two non-fiction books written is not impossible. In fact, like I mentioned in [my previous post](http://masteringpurpose.com/my-start-to-mastering-purpose/), I’ve got the majority of the first one done, so finishing that one and moving to the next should help give me a head-start!
 
 **\#4 Own A Rental Property**
 
@@ -61,3 +61,5 @@ It’s taken many years of my life to actually think of the “Where do you see 
 For the kids, that means they will be eight and nine! Now, that’s sad.
 
 Anyway, take care and until the next one.
+
+\--Nick
