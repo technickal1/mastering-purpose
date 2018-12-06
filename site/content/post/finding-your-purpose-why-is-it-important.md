@@ -5,7 +5,7 @@ description: >-
   Finding your purpose means more than just loving one another. It means knowing
   what you love to do and defining your purpose with your skills.
 ---
-How To Find Purpose and Do What You Love
+## How To Find Purpose and Do What You Love
 
 This is not an easy question.
 
@@ -23,11 +23,15 @@ Here's where purpose comes in.
 
 One of my favorite quotes:
 
-“The meaning of life is to find your gift. The purpose of life is to give it away.” ―Pablo Picasso.
+> “The meaning of life is to find your gift. The 
+>
+> _purpose _
+>
+> of life is to give it away.” ―Pablo Picasso.
 
 Read that again.
 
-The meaning of life is to find your gift. The purpose of life is to give it away.
+The _meaning _of life is to find your gift. The purpose of life is to give it away.
 
 Pretty trivial, isn't it?
 
@@ -35,7 +39,7 @@ Yet we go about our day, waking up only to go right back to bed feeling that we'
 
 Cue purpose.
 
-You have that. A purpose.
+_You _have that. A _purpose_.
 
 There is something you are good at. More than good, probably exceptional. And, it is your job to find it, use it, and share it to others.
 
@@ -45,13 +49,13 @@ You see, there are certain people that need to hear your story. And, hear it fro
 
 The way that you would tell it, not someone else. Because that's how you were designed.
 
-Part 1: Finding Your Purpose
+**Part 1: Finding Your Purpose**
 
 This could be an entire book, but let's keep it brief for this post. You need to really dive deep on this one.
 
 What is the one thing that you can talk to anybody about for hours?
 
-I heard it once put, what makes you forget to poop?
+I heard it once put, _what makes you forget to poop_?
 
 There is something you have been interested in for probably most of your life and maybe have not realized it yet.
 
@@ -69,7 +73,7 @@ There's a constant yearning for something else, something better for you.
 
 I say better for you because it's not going to work for someone else. In fact, some other people will think you're crazy.
 
-Part 2: Do What You Love
+**Part 2: Do What You Love**
 
 There's a big difference between doing something that you are good/great at or doing something that you love and also are good/great at.
 
@@ -79,41 +83,40 @@ There's something in the human brain that wants us to be efficient after doing s
 
 Sahaf from his IQ productivity blog says,
 
-"The ultimate goal when focusing on efficiency is to reduce wasted time, energy, and sometimes even money."
+> "The ultimate goal when focusing on efficiency is to reduce wasted time, energy, and sometimes even money."
 
 So, just because you are good at something doesn't mean that's what your purpose is or that it's what you were called to do.
 
-This is the whole motive behind this blog, Mastering Purpose.
+This is the whole motive behind this blog, _Mastering Purpose_.
 
 We never truly master it, because we're always trying.
 
-Quick note: in my upcoming podcast interview with Stephen Shedletsky, we discuss this further. Stay tuned for that!
+**Quick note:** in my upcoming podcast interview with Stephen Shedletsky, we discuss this further. Stay tuned for that!
 
 But, it's also important to find what you love to do. And keep doing it for the rest of your life.
 
-The thing that happens when you put the love with purpose is that in the times of discouragement, you keep the why in your head.
+The thing that happens when you put the love with purpose is that in the times of discouragement, you keep the _why _in your head.
 
-The reason why you continue to wake up every day and fight for what you want.
+The reason _why _you continue to wake up every day and fight for what you want.
 
-The why behind the constant struggles you push to overcome.
+The _why _behind the constant struggles you push to overcome.
 
 Your purpose has the ability to overcome things you never thought possible.
 
-And, it helps you connect to your true self. The person you really want to be.
+And, it helps you connect to your true self. The person you _really _want to be.
 
 Anyone can create muscle memory, but it's up to you to love what you do while doing it.
 
-Part 3: The Christian Part
+**Part 3: The Christian Part**
 
 Scripture that relates here:
 
-1 Peter 4:10
-
-Each of you should use whatever gift you have received to serve others, as faithful stewards of God’s grace in its various forms.
+> "Each of you should use whatever gift you have received to serve others, as faithful stewards of God’s grace in its various forms."
+> 1 Peter 4:10
 
 We each have a gift (and purpose) and should use it accordingly. It's important to remember how God will use you.
 
-What to Do When You Can't Find Your Purpose?
+**What to Do When You Can't Find Your Purpose?**
 
 Keep looking!
 
