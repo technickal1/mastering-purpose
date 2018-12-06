@@ -128,39 +128,37 @@ What matters is that you don't let yourself down thirty or forty years from now 
 
 Here are 5 things people have regretted on their deathbed:
 
-1. I wish I'd had the courage to live a life true to myself, not the life others expected of me.
-2. I wish I hadn't worked so hard.
-3. I wish I'd had the courage to express my feelings.
-4. I wish I had stayed in touch with my friends.
-5. I wish that I had let myself be happier.
+* _**I wish I'd had the courage to live a life true to myself, not the life others expected of me.**_
+* _**I wish I hadn't worked so hard.**_
+* _**I wish I'd had the courage to express my feelings.**_
+* _**I wish I had stayed in touch with my friends.**_
+* _**I wish that I had let myself be happier.**_
 
-Source for those statements.
+[Source](http://www.businessinsider.com/5-things-people-regret-on-their-deathbed-2013-12) for those statements.
 
-Notice that no one mentioned they wish they had another car, or that they wished to have a bigger house, or that they wished to have more followers on social media.
+Notice that **no one** mentioned they wish they had another car, or that they wished to have a bigger house, or that they wished to have more followers on social media.
 
-This is why it is both crucial and critical (I'm not sure which word is best here!) to keep looking. And chances are that if you've been searching for a long time, you're a lot closer than you realize.
+This is why it is both _crucial and critical_ (I'm not sure which word is best here!) to keep looking. And chances are that if you've been searching for a long time, you're a lot closer than you realize.
 
-You are closer if you've been looking because you know what your purpose is not.
+You are closer if you've been looking because you know what your purpose **is not.**
 
-Perfect Books to Read for Purpose Seeking
+**Perfect Books to Read for Purpose Seeking**
 
-Rick Warren: The Purpose Driven Life
+[Rick Warren: The Purpose Driven Life](http://purposedriven.com/books/pdlbook/)
 
 The Purpose Driven Life answers the following questions:
 
-The Question of Existence: Why am I alive?
+* The Question of Existence: Why am I alive?
+* The Question of Significance: Does my life matter?
+* The Question of Purpose: What on earth am I here for?
 
-The Question of Significance: Does my life matter?
+[Victor J. Strecher: Life on Purpose](https://www.harpercollins.com/9780062409607/life-on-purpose/)
 
-The Question of Purpose: What on earth am I here for?
-
-Victor J. Strecher: Life on Purpose
-
-Life on Purpose explores the incredible connection between purposeful living and the latest scientific evidence on quality of life and longevity.
+_Life on Purpose_ explores the incredible connection between purposeful living and the latest scientific evidence on quality of life and longevity.
 
 It draws on ancient and modern philosophy, literature, psychology, evolutionary biology, genetics, and neuroscience.
 
-If you'd like to listen to others' stories about their purpose, feel free to start listening to the Mastering Purpose podcast. I get the privilege of interviewing people in their everyday lives living with purpose.
+If you'd like to listen to others' stories about their purpose, feel free to start listening to the [Mastering Purpose podcast](https://masteringpurpose.com/podcast-intro/). I get the privilege of interviewing people in their everyday lives living with purpose.
 
 You're the best. Thanks for being here.
 
