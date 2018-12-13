@@ -64,7 +64,7 @@ While I love access to [Pixabay ](https://pixabay.com/)and other free sites li
 | -------------------------------  | -------- |
 
 | advertisements | 16  |
-| :--------------------------------------------- | ---------: |
+| :-------------------------------- | ---------: |
 | Amazon CPM ads | 1   |
 | YouTube Ads    | 15  |
 | book sales     | 0   |
