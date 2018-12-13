@@ -1,5 +1,5 @@
 ---
-title: "\U0001F399️ MP008: Matt Heffner of Our Daily Rest – Make Time for Rest"
+title: "\U0001F399️ MP008: Matt Heffner of Our Daily Rest – Make Time for Rest [podcast]"
 date: 2018-12-13T21:08:46.675Z
 description: >-
   Matt Heffner and I got to share a great interview session together talking
