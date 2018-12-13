@@ -67,10 +67,8 @@ While I love access to [Pixabay ](https://pixabay.com/)and other free sites li
 | :-------------------------------- | ---------: |
 | Amazon CPM ads | 1   |
 | YouTube Ads    | 15  |
-| book sales     | 0   |
+| [book sales](http://a.co/d/7I5ScSM)     | 0   |
 | --------------------------------------------- |
-
-[5 Feet 10 Inches: Vacate Normalness & Define Your Purpose](http://a.co/d/7I5ScSM)
 
 | expenses                         | 93        |
 | :-------------------------------- | ---------: |
