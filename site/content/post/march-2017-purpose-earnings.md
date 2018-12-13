@@ -55,6 +55,12 @@ While I love access to [Pixabay ](https://pixabay.com/)and other free sites li
 | Affiliate     | 19  |
 | Amazon        | 19  |
 
+| Courses | 228 |
+| ------------------------------- | -------- |
+| After Effects for Entrepreneurs | 199 |
+| Photoshop for Beginners         | 20 |
+| After Effects for Beginners     | 9 |
+
 ### courses
 
 ### 228
