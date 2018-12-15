@@ -12,13 +12,13 @@ description: >-
 
 ### How Was Our Daily Rest Founded?
 
-Around 2005, Matt was diagnosed with [Crohn's disease](https://www.crohnsandcolitis.com/crohns) which is a digestive disease with no known causes and only speculation as to how it develops. By definition, it is incurable. Matt and [his wife Leah](http://www.leahheffner.com/) also run an online shop called [The Red Oak Collective](https://masteringpurpose.com/theredoakcollective) where they have mugs, apparel, books, and other meaningful items that help give value to your life.
+Around 2005, Matt was diagnosed with [Crohn's disease](https://www.crohnsandcolitis.com/crohns) which is a digestive disease with no known causes and only speculation as to how it develops. By definition, it is incurable. Matt and [his wife Leah](http://www.leahheffner.com/) also run an online shop called _The Red Oak Collective_ where they have mugs, apparel, books, and other meaningful items that help give value to your life.
 
 ### How Leading an Entrepreneur Lifestyle Affects Rest
 
 As an entrepreneur, the struggle of trying to focus on one task at a time is extremely difficult. I'm saying this from experience. The _hey-that's-the-next-best-thing_ mentality is constantly bombarding your concentration and ability to focus.
 
-> The life of an entrepreneur is like a roller coaster - except the valleys are deeper and the heights are higher.
+> The life of an entrepreneur is like a roller coaster -- except the valleys are deeper and the heights are higher.
 
 When your brain doesn't shut off (because you love what you do) it's hard to stop and rest. Sometimes, as Matt says, we just need to **go to bed**.
 
@@ -26,7 +26,8 @@ When your brain doesn't shut off (because you love what you do) it's hard to sto
 
 When asked about advice he would give to others about using talents and skills, Matt talks about just plain trying stuff. Whether it be working for someone for free or volunteering somewhere, it's helpful to know the things you do and don't like. This reminds me of when how Stephen Shedletsky talked about [drawing peaks and valleys](https://masteringpurpose.com/podcasts/stephen-shedletsky-start-with-why) of your life to determine what you enjoy to do.​
 
-> Don't do everything...but explore a lot of things. -paraphrased quote from Essentialism
+> "Don't do everything...but explore a lot of things." \
+> -paraphrased from Essentialism
 
 ### Starting Small with Small Moments​
 
@@ -36,7 +37,7 @@ One of the best things we talked about during the podcast was about **starting s
 
 Working from home, Matt talks about how he doesn't doubt his long term plans because he has confidence in himself to find mentors and stay on the right track to success. That's awesome because many people out there have doubts about their future as an entrepreneur. Matt spoke about having a **physical retreat center** in the future to allow pastors and missionaries a place for rest. Wouldn't that be great to have a dedicated place to disconnect?
 
-* * *
+- - -
 
 ### MP QUICK THOUGHTS
 
@@ -46,32 +47,21 @@ I'm glad we got a chance to have this discussion because it is important that we
 
 Actually, at this point in time, I'm not 100% sure what's in the pipeline. I'd like to record a solo episode for the next podcast (since our [Heil PR-40](http://amzn.to/2p5CWnb) is now repaired!) and we'll see about the topic!
 
-### \[icon name="microphone" class="" unprefixed\_class=""\] PODCAST WRAP-UP – LINKS AND MORE
-
-*   The Interviewee
-*   Resources
+* The Interviewee
+* Resources
 
 ### About Matt Heffner
 
-*   Blogger/Podcaster/Website Owner of [ourdailyrest.net](http://ourdailyrest.net)
-*   Co-Author of [Intentional Love: 31 Ways](https://theredoakcollective.com/products/intentional-love-31-ways-marriage-bundle?aff=11)
-
-### Matt on Social Media
-
-\_\_\_TVE\_SHORTCODE\_RAW\_\_ [Our Daily Rest on \[icon name="fa-facebook-official" class="" unprefixed\_class=""\]](https://www.facebook.com/thedailyrest/) [Our Daily Rest on \[icon name="fa-instagram" class="" unprefixed\_class=""\]](https://www.instagram.com/ourdailyrest/) \_\_TVE\_SHORTCODE\_RAW\_\_\_
-
-[Our Daily Rest on](https://www.facebook.com/thedailyrest/) [Our Daily Rest on](https://www.instagram.com/ourdailyrest/)
+* Blogger/Podcaster/Website Owner of [ourdailyrest.net](http://ourdailyrest.net)
+* Co-Author of [Intentional Love: 31 Ways](https://www.amazon.com/gp/product/B075NNLF3B/ref=dbs_a_def_rwt_bibl_vppi_i0)
+* [Our Daily Rest on Facebook](https://www.facebook.com/thedailyrest/)
 
 ### Here's what was mentioned in this session:
 
-*   [The Unveiled Wife](https://unveiledwife.com/)
-*   [Husband Revolution](https://husbandrevolution.com/)
-*   [The One Thing by Gary Keller](http://amzn.to/2ouhXfl)
-*   [Essentialism: The Disciplined Pursuit of Less by Gary McKeown](http://amzn.to/2qcAY2g)
-*   A float tank ([mentioned in podcast #6](https://masteringpurpose.com/podcasts/year-of-purpose-with-zephan-moses-blaxberg))
-*   [Workflowy.com](https://workflowy.com)
-*   [The Red Oak Collective](https://masteringpurpose.com/theredoakcollective)
-*   [Dale Partridge at startupcamp.com](http://startupcamp.com/)
-*   [Leah's Making Marriage Matter Course](http://www.leahheffner.com/marriage-course/)
-
-\[TRANSCRIPT\] _In progress..._ \[/END OF TRANSCRIPT\]
+* [The Unveiled Wife](https://unveiledwife.com/)
+* [Husband Revolution](https://husbandrevolution.com/)
+* [The One Thing by Gary Keller](https://www.amazon.com/ONE-Thing-Surprisingly-Extraordinary-Results-ebook/dp/B00C1BHQXK)
+* [Essentialism: The Disciplined Pursuit of Less by Gary McKeown](https://www.amazon.com/Essentialism-Disciplined-Pursuit-Greg-McKeown/dp/0804137382)
+* A float tank (mentioned in podcast #6)
+* [Workflowy.com](https://workflowy.com)
+* [Dale Partridge at startupcamp.com](http://startupcamp.com/)
